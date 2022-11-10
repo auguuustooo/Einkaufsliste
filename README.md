@@ -13,3 +13,4 @@ Kein Plan was man hier eig. machen muss
 
 + Yo
     + ok
+[noch ein aktuelles Bild von mir](https://www.frankerfacez.com/emoticon/145947-FeelsOkayMan) 
